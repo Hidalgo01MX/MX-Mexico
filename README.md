@@ -1,2 +1,35 @@
-# hidalgomx
-México(Hidalgo, México) 
+# México (32.Estados)
+
+==Baja California Norte==
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
